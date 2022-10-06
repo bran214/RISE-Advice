@@ -1,6 +1,6 @@
 # RISE Advice
 
-[Back to Linktree](
+[Back to Linktree](https://linktr.ee/riseadvice)
 
 ## Latest Question
 
